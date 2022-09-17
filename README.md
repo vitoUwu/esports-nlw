@@ -1,1 +1,1 @@
-# NLW eSports - Stage 2/6 | Aula prática - High speed
+# NLW eSports - Stage 6/6 | Aula prática - The Next Level
